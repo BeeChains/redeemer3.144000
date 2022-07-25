@@ -2,4 +2,4 @@
 
 - [144000](http://redeemers.144000/)
 
-Inquiry [bthespirit777@protonmail](https://protonmail.com/)
+Inquiry [bthespirit777@proton.me](mailto://bthespirit777@proton.me)
